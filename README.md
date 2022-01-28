@@ -2,4 +2,4 @@
 
 `bot dev 4 fun`
 
-﹒ [me](https://t.ly/akina) [server](https://discord.gg/ouch)
+﹒ [me](https://6jnk.carrd.co) [server](https://discord.gg/vill)
